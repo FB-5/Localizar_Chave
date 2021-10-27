@@ -1,0 +1,1 @@
+# Localizar_WinKey
